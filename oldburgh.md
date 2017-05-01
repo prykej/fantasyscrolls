@@ -1,4 +1,4 @@
-> **Oldburgh**\(Patron God – Odin, Trading Specialties – Furs, Spices, Rice, Artisanal Goods\)
+**Oldburgh**\(Patron God – Odin, Trading Specialties – Furs, Spices, Rice, Artisanal Goods\)
 
 Originally an outpost of Westmark, Oldburgh has grown into a major trading port in its own right. Like Thentis, the “old city” shows remnants of the Westmark architecture, including canals that are built off of the main channel of the Great River.
 

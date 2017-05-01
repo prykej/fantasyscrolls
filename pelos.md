@@ -1,4 +1,4 @@
-> **Pelos**\(Patron God - Marduk, Trading Specialties – Iron, Whale Oil, Fish, Wheat\)
+**Pelos**\(Patron God - Marduk, Trading Specialties – Iron, Whale Oil, Fish, Wheat\)
 
 Sometimes called the end of the known earth, the City of Pelos is famed for the quality of its navigators and the bravery of its sailors. Like Oldburgh, its roots are found in the ancient Empire of Westmark. Aside from the Citadel and great lighthouse, Pelos has no other architectural legacy from ancient times.
 

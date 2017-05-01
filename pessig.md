@@ -1,4 +1,4 @@
-> **Pessig**\(Patron God – Uller, Trading Specialties – Spices, Fish, Furs\)
+**Pessig**\(Patron God – Uller, Trading Specialties – Spices, Fish, Furs\)
 
 The city of Pessig was founded by three holy sisters who were directed to found a colony by a vision granted by the God Uller. Residents of the city are known for their almost reckless approach to life, hazarding fortunes on risky ventures or making absurd bets. Their foolhardiness is only matched by their luck.
 
