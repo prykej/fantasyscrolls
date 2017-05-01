@@ -17,7 +17,7 @@
 
 * \*[Salis](salis.md)
 
-* \*[Nembrod](nembrod.md)
+* [Nembrod](nembrod.md)
 
 * [ ] [Urkel](urkel.md)
 
@@ -26,6 +26,7 @@
 * [ ] [Pelos](pelos.md)
 
 * [Thentis](thentis.md)
+
 * [The Sunken Kingdom](the-sunken-kingdom.md)
 * [Krimzan](krimzan.md)
 * [The Gnome Hills](the-gnome-hills.md)
