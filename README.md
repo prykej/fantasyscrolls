@@ -17,7 +17,7 @@ Unlike the Spine of the World, which is a \(mostly\) impassable range of tall, j
 
 If the Spine of the World is a forbidding and dangerous barrier, the Boiling Sea is equally so. Some sages say that the Boiling Sea is just the volcanic and rocky Spine descending into the seabed.
 
-![](https://www.fantasyscrolls.com/assets/WorldMap.png)
+![](/assets/worldmap.png)
 
 In addition to the volcanic islands, geysers, whirlpools, reefs and other natural dangers, there are unnatural dangers that make the Boiling Sea a place to be avoided. As the sailing masters of the Southron League are fond of saying, there is danger and adventure enough in the known seas around the continent without hazarding the certain doom of the Boiling Sea. The constant turmoil of the sea is responsible for its name, not the general water temperature \(although there are many areas where the water is, in fact, boiling\).
 
