@@ -6,7 +6,7 @@ The city is famous for its stone and marble architecture. Quarries accessible by
 
 As a trading city, the canals of Thentis are used to transport goods from warehouses to workshops to docks. The canals are also used for human transportation. It is more costly to buy and maintain a canal boat than it is to hire one of the many entrepreneurs who ply the canals. However, it is a sign of status to maintain your own boat \(or fleet\).
 
-![](https://www.fantasyscrolls.com/assets/thentis.png)
+![](/assets/thentis.png)
 
 With the exception of late summer, when the heat and smell make it almost unendurable, it is pleasant to be polled around the canals. Most of the great temples, palaces, squares and public places border, or can be seen from, the canals.
 
