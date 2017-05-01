@@ -1,4 +1,4 @@
-**Jeru**\(Patron God – Poseidon, Trading Specialties – Fur, Silver, Gold\)
+> **Jeru**\(Patron God – Poseidon, Trading Specialties – Fur, Silver, Gold\)
 
 Although it is many generations past its glorious prime, the City of Jeru is still a force to be reckoned with within the League. Although they tend to make the city a target for adventurers and pirates, its famous mines produce fantastic wealth which are the main bulwark of its power.
 

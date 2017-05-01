@@ -1,4 +1,4 @@
-**Salis**\(Patron God – Isis, Trading Specialties – Wood, Furs, Ebony, Wool\)
+> **Salis**\(Patron God – Isis, Trading Specialties – Wood, Furs, Ebony, Wool\)
 
 Salis sits at the mouth of the Tansey River, which gives it access to an extensive hinterland in the Iron Hills. While trade is the main activity of every city in the League, Salis is home to a powerful mystery cult under the patronage of the Goddess Isis. No one can rise to power within the city without the backing of the cult, which is known to have its tentacles \(as charming and desirable as they are\) many places within the League \(and beyond\). Varia of Isis is known to be a leading member of this organization.
 

@@ -1,4 +1,4 @@
-**Nembrod**\(Patron God – Njord, Trading Specialties – Spices, Silk, Ships\)
+> > > > **Nembrod**\(Patron God – Njord, Trading Specialties – Spices, Silk, Ships\)
 
 In addition to the trade in luxury goods, Nembrod is known for the quality of its ship building. Ships built in the city are known to be faster and more durable than others, even though the designs are often replicated elsewhere. Is it the local wood? The craftsmen? Or a special blessing of the old god?
 
