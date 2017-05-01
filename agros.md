@@ -1,4 +1,4 @@
-> **Agros**\(Patron God – Ptah, Trading Specialties – Wood, Tin, Jade, Pipeweed\)
+**Agros**\(Patron God – Ptah, Trading Specialties – Wood, Tin, Jade, Pipeweed\)
 
 One of the oldest cities within the League, Agros is known for its passion for public games, feasts and other outward displays of ostentatious wealth. Many leading families claim ancestry from the nobility of Westmark but, as any citizen in the League knows, wealth is the only nobility that a person truly requires.
 
