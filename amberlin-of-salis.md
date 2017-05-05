@@ -1,4 +1,4 @@
-
+### **Amberlin of Salis**
 
 Unlike most mages, Amberlin of Salis possess a physique that most warriors would envy. In fact, this mage began his career as a swordsman before turning to the study of the arcane. Although of middling power, he distinguished himself for valour at the Siege of Ravelle and the Battle of Losimar Gap. Although he was decapitated by the vorpal blade of the Hidden General in the latter contest, he was successfully resurrected by grateful clerics of Isis.
 

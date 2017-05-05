@@ -1,4 +1,4 @@
-
+### **Bakelites**
 
 This ancient race of human stock was fabled for its ability to forge armour and weapons of superior quality and inherent magical attributes. Under their kings and warlords, the Bakelites fought an ongoing war with various neighbours. Although victorious many times, low fertility rates among this race meant that warriors lost in these battles were not quickly replaced and their power faced an inevitable decline.
 

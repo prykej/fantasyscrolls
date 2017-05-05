@@ -1,4 +1,4 @@
-
+### **Astral Plane**
 
 As part of the cosmology of existence, the astral plane connects with all the other planes and acts as the main passageway between planes. A connection with this plane is the functioning part of Bags of Holding and other like items as well as transportation spells, such as Dimension Door or Teleport.
 
